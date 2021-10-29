@@ -1,0 +1,2 @@
+# Mongolia
+artificial intelligence specialist
